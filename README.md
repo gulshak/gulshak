@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **gulshankumaravit5@gmail.com**
 
-- 📄 Know about my experiences [[https://pdf.ac/2kzmb7](https://drive.google.com/file/d/1gcHdyjvpBhfdnwEhx5uneQR6F9Cbigbb/view?usp=sharing)]
+- 📄 Know about my experiences [[https://pdf.ac/2kzmb7](https://drive.google.com/file/d/1MJihCSeFaZgvlVKdow1wAHojEXs9zKeQ/view?usp=sharing)]
 - ⚡ Fun fact **I am funny**
 
 <h3 align="left">Connect with me:</h3>
